@@ -1,3 +1,7 @@
 # hello-world
-blah blah blah.. random meme
-PETA super BUSY!! WOWORLD!! 
+
+Hi Humans!
+
+Humans, please lessen the PETA'S!!!
+Give us a rest!
+
